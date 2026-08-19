@@ -3,3 +3,5 @@ folder ini dibuat untuk wishlist melin di 2026
 - muncak ke gunung Merbabu
 - nonton konser
 - upgrade handphone
+-jalan jalan keliling jakarta
+-self reward
